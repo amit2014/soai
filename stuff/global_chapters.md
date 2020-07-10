@@ -1492,6 +1492,11 @@ Social Media Accounts
 
 [Facebook](https://www.facebook.com/groups/676626902713326/)
 
+### Nanded
+Social Media Accounts
+
+[Facebook](https://www.facebook.com/groups/nandedschoolofai)
+
 ### Nashik
 Social Media Accounts
 
